@@ -1,0 +1,56 @@
+# Alpha version
+
+##Outline
+
+There is a game played between man and deities. People are given (12) ranks (EX, SSS, SS, S, AAA, AA, A, B, C, D, E, F),
+corresponding to color's of the card (white, red, orange, yellow, green, blue, purple, copper, silver, gold, rainbow, black)...
+
+Goddess Scenario? No, that is not a good name of the event.
+
+Lets call him Zero for now... Raine Vesper shall be called One?
+
+Okay, here is how it is going to go...
+
+Zero is about to complete his primary magic spell after a year of development. He has been aware of the game played in the alternate world, but he has never taken part in it himself.
+
+A constant lurker, he wanted to finish his spell first before joining. His initial goal was something simple: A chatroom that can be used even while in the alternate world. Currently everything about the game is administrated while online in the real world. It can be recorded, but not livestreamed.
+
+Because of Zero's contact and messages with One, he changes his mind and sets up an release event with her. It is a community event and the first of its kind since the game was developed 3 years ago.
+
+Perhaps the name of the event is "Moonlit Dawn" (taken from Heroic Myth, lol).
+The full name of the spell is "Lunar Archive"
+The name of the card is "Moonlit Shard" / Moonlit fragment / Crescent Shard / Lunar Shard / Starlit Crescent
+
+
+Zero uses community event to introduce One and have her make friends, despite the curse / prejudice that others have towards her. Perhaps Zero introduces her as Pandora(?)
+
+Because of the event text, Pandora is treated as someone cursed with all the world's evil's.
+
+Scavenger Hunt tells a story of how Pandora and Snow White came to be. Each of the fragments has a line of text that explains the background of the story.
+
+Only by interacting with each other and speaking in the chatbox can the story slowly be pieced together.
+
+Phase 1: Scavenger Hunt- search for the hidden lunar fragments
+Phase 2:
+
+Final Phase: Reveal Pandora to the world. Perhaps Rain Vesper's curse is mitigated by time and distance. It can also be mitigated by the number of people she interacts with/the number of links she has. In that sense, Zero's plan to hook everyone up on a common chatroom links everyone to her and completely nullifies her curse. Alternate name for Pandora is the "Star of Calamity"
+
+Finale: Pandora is swallowed by "Pandora's box," everyone who participated in the event appears before her. Raises their card up in the air and a white light shines, colasecing on the form of Zero / "Snow White." Snow White (with her eyes closed, still asleep, body of white light) walks up to Pandora and their foreheads touch, erupting in a blinding white light. Snow White then disappears (after a faint smile), Pandora's black hair fades away to white and she is hence "saved."
+
+Perhaps Zero falls asleep in the middle of the finale and wakes up as Snow White(?). Perhaps the entire event, instead of ending on rescuing/waking up Snow White, merely introduces Pandora.
+
+The event runs away from Zero, everyone's beliefs come together to perform a powerful spell and change the world.
+
+Perhaps the cards are a part of nature and the akashic records?
+
+The event "Moon Break" "Shattered Moon" "Meteor Shower"
+
+In the beginning, there was Zero. Past the boundary of Infinity was One. And when Zero met One, everything followed. / All of creation followed.
+
+Imaginary sea / numbers / axis / Reality
+Reverse side of the world / Dark side of the moon
+Heavens fall / lunar descent / sea of time / sea of souls
+
+Each big update invovles a community event
+
+Perhaps other gods follow the same idea and start making events of their own.
